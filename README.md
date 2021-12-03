@@ -1,4 +1,4 @@
-# Welcome Administrator!
+# Welcome!
 
 > Website: [RSL](http://jszy.whu.edu.cn/yang_li/en/zdylm/1403615/list/index.htm)   
 > Bilibili:    
